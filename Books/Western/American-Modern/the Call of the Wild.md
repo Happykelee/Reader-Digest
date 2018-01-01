@@ -16,7 +16,7 @@ There is an ecstasy that marks the summit of life.
 And the paradox of living is that this ecstasy that comes when one is most alive, comes as a complete forgetfulness that one is alive.  
 生命的两重性在于此，一个人最亢奋时候表现出来的狂喜，让他忘了自己还活着。  
 This ecstasy, this forgetfulness of living, comes to the artist, caught up and out of himself in a sheet of flaming color;  
-这种对生存的忘却，出现在艺术家身上，是沉浸在烈火般的激情中忘却了生存
+这种对生存的忘却，出现在艺术家身上，是沉浸在烈火般的激情中忘却了生存  
 it comes to the soldier, war-mad on a field of death but refusing to surrender;  
 and it came to Buck, leading the pack, sounding the old wolf-cry, straining after the food that was alive and that fled swiftly before him through the moonlight.
 

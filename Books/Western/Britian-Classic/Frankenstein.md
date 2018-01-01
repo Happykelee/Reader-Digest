@@ -5,7 +5,7 @@ My life might have been passed in ease and comfort, but I preferred glory to eve
 
 I began by making my body used to hardship. I went on whale hunting expeditions to the North Sea; I voluntarily endured cold, hunger, thirst, and lack of sleep. I often worked harder than the common sailors during the day. Then, at nights, I studied mathematics, the theory of medicine, and science of practical importance of a sea-going adventurer.
 
-Thinking of it, I feel the same joy a child feels when he sails his little boat on a voyage of discovery up his native river.  
+Thinking of it, I feel the same joy a child feels when he sails his little boat on a voyage of discovery up his native river.  
 光想着此事，我都能感受到“一个小孩登上一艘小船，准备沿着自家门前的小河去历险”那样的喜悦心情。
 
 Her hair was the brightest living gold, and despite the poverty of her clothing, seemed to set a crown of distinction on her head. Her forehead was high and clear, and her blue eyes were cloudless. Her lips and the shape of her face showed so much sensibility and sweetness that she seemed to be a being sent from heaven.

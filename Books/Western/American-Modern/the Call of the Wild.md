@@ -1,5 +1,5 @@
 # the Call of Wild
-__John Griffith London__
+_by John Griffith London_
 
 He did not try to steal from the newcomers.  
 He was a sad, dark fellow.  

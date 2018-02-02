@@ -35,11 +35,8 @@ The winter silence had been driven away by the sounds of awakening life, coming 
 From below came a loud roaring, where the wild current went wilder, and sharp rocks split the river like a mouthful of sharp teeth.  
 下方传来一声巨响，水流更加湍急，锋利的石头像一嘴锋利的牙齿，把河流分开。
 
-# Frankenstein
-
 But where there was no other life nor sign of life-only the blowing of cold winds, the forming of ice in sheltered places, and the melancholy rippling of waves on lonely beaches.  
 但这里没有生命，也没有生命的痕迹——只有呼啸的寒风，凝结的冰雪，和孤寂的海岸上的波浪。
 
 There is a patience of the wild-tireless, persistent as life itself-that holds still for endless hours the spider in its web, the snake in its coils, the tiger waiting in ambush(埋伏地).  
-This patience belongs especially to life when it hunts its living food, and it belonged to Buck as he kept beside the herd,  
-slowing its progress, upsetting the young bulls, harassing(不断攻击) the cows(雌性动物) with their half-grown calves(幼崽), and driving the wounded bull mad with helpless rage.  
+This patience belongs especially to life when it hunts its living food, and it belonged to Buck as he kept beside the herd, slowing its progress, upsetting the young bulls, harassing(不断攻击) the cows(雌性动物) with their half-grown calves(幼崽), and driving the wounded bull mad with helpless rage.  

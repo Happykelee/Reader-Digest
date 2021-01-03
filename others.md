@@ -15,3 +15,6 @@ Now that it's the New Year, I've decided to **turn over a new leaf(wipe the slat
 The first settlers of Massachusetts arrived there because of religious persecution from England and King James. Once in the New World, they befriended a native named Squanto, who taught them how to harvest food from the area such as corn.
 They had enough harvest for the next winter and in celebration they decided to have a big feast with the natives, giving thanks to the land and everyone for their food, house and new lives.
 *\<the origin of Thanksgiving Day>*
+
+The skirt of the woman's dress, which had very long side-slits, flapped in the high wind, and as they passed it became entangled with the young man's walking-stick and the thin silk tore with a PFFT! 
+大风刮起那女子的开叉极高的旗袍下幅，就卷住了那手杖，嗤的一声，旗袍的轻绡上裂了一道缝儿。
